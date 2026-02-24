@@ -1,2 +1,2 @@
 # think-python
-this is the think python stuff and " dond steal code "
+dhis iz dhe tink pyton chingy chong stuff and " donde stealee me codee "
